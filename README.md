@@ -1,5 +1,5 @@
 # 💫 About Me:
-Full-Stack Software Developer | Lifelong Student | Board Game Enthusiast
+Full-Stack Software Developer | Lifelong Student | Builder | Board Game Enthusiast
 
 
 ## 🌐 Socials:
